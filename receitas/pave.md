@@ -20,14 +20,14 @@
 
 # Modo de preparo:
 
-- Separe os ingredientes para preparar o pavê de chocolate fácil, uma receita que acompanha os melhores momentos em família;
-- Uma panela contendo a mistura de leite condensado, amido de milho, gema, leite, creme de leite e essência de baunilha.Receiteria
-- Para o creme, em uma panela fora do fogo, coloque o leite condensado e o amido de milho. Com um batedor de arame ou espátula, misture até dissolver bem o amido. Acrescente a gema, o leite, o creme de leite e a essência de baunilha e mexa até os ingredientes incorporarem;
-- Um recipiente contendo creme branco coberto com plástico.Receiteria
-- Leve a panela ao fogo médio e mexa sem parar até o creme começar a ferver e engrossar (cerca de 5 a 8 minutos) - o creme vai encorpar e começar a soltar do fundo da panela. Desligue o fogo, transfira para um recipiente e deixe esfriar;
-- Um recipiente contendo ganache de chocolate.Receiteria
-- Para a ganache, pique o chocolate e coloque em um recipiente. Derreta em banho-maria ou no micro-ondas, de 30 em 30 segundos, mexendo nos intervalos. Assim que derreter completamente, adicione o creme de leite e mexa até incorporar e formar a ganache;
-- Um recipiente contendo leite.Receiteria
+1. Separe os ingredientes para preparar o pavê de chocolate fácil, uma receita que acompanha os melhores momentos em família;
+2. Uma panela contendo a mistura de leite condensado, amido de milho, gema, leite, creme de leite e essência de baunilha.Receiteria
+3. Para o creme, em uma panela fora do fogo, coloque o leite condensado e o amido de milho. Com um batedor de arame ou espátula, misture até dissolver bem o amido. Acrescente a gema, o leite, o creme de leite e a essência de baunilha e mexa até os ingredientes incorporarem;
+4. Um recipiente contendo creme branco coberto com plástico.Receiteria
+5. Leve a panela ao fogo médio e mexa sem parar até o creme começar a ferver e engrossar (cerca de 5 a 8 minutos) - o creme vai encorpar e começar a soltar do fundo da panela. Desligue o fogo, transfira para um recipiente e deixe esfriar;
+6. Um recipiente contendo ganache de chocolate.Receiteria
+7. Para a ganache, pique o chocolate e coloque em um recipiente. Derreta em banho-maria ou no micro-ondas, de 30 em 30 segundos, mexendo nos intervalos. Assim que derreter completamente, adicione o creme de leite e mexa até incorporar e formar a ganache;
+8. Um recipiente contendo leite.Receiteria
 Para a montagem, coloque o leite em um prato fundo e molhe as bolachas rapidamente, para que não fiquem muito úmidas e moles;
-- Um refratário forrado com bolachas maizenas.Receiteria
-- Faça uma camada de bolachas em um refratário (23 cm x 16,5 cm x 8,5 cm), forrando todo o fundo - se precisar, quebre algumas bolachas para encaixar corretamente.
+9. Um refratário forrado com bolachas maizenas.Receiteria
+10. Faça uma camada de bolachas em um refratário (23 cm x 16,5 cm x 8,5 cm), forrando todo o fundo - se precisar, quebre algumas bolachas para encaixar corretamente.
